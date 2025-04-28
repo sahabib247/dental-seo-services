@@ -21,4 +21,4 @@ Whether you're a brand-new clinic or an established practice looking to dominate
 
 🦷 Order now and let's create a smile-worthy SEO strategy! 😁
 
-  # [Order now!"
+  # [Contact Now!]()
